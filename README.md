@@ -1,5 +1,5 @@
 # EGO.
-
+![EGO](http://lapiedradesisifo.com/wp-content/uploads/2018/12/Ego2.jpg)
 # La gestión de los conflictos en el entorno profesional.
 En nuestra vida convivimos con personas muy distintas y a menudo nos enfrentamos a situaciones muy distintas que nos pondrán bajo presión por cumplir objetivos o plazos y todo esto trate conflictos en el ámbito laboral, muchos de los conflictos no muchas veces suelen ser negativos y son retos que nos enfrentamos y que nos ayudan a mejorar como profesionales y como empresa.
 Los conflictos que no se resuelven adecuadamente crecen y crecen y llegan a ser dañinos hay que aprender a resolver los conflictos con un sentido amplio y con una charla en la empresa.
